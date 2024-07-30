@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Youl-png
+- 👀 I’m interested in jpop, video games and watching certain sports
+- 🌱 I’m currently learning godot
+- 📫 How to reach me: sakuragawa2308@gmail.com
+- 😄 Pronouns: They/Them online
+- ⚡ Fun fact: I like volleyball
